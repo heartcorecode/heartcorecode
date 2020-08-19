@@ -3,13 +3,11 @@
 
 ｡ﾟﾟ゜･｡゜･ﾟﾟ｡
 
-ﾟ。 ⠀⠀⠀⠀ 。´
+ﾟ。 ⠀⠀⠀⠀ i'm des, and here are some of my pinned goals:
 
 ⠀ 　ﾟ･｡･ﾟ 
 
-hello
-6
 
-- 9 
+-  
 
-- 2
+- 
