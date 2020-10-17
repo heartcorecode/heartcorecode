@@ -7,8 +7,6 @@
 ⠀ 　ﾟ･｡･ﾟ 
 
 
-also a:
-
--  `college student majoring in computer science`
+-  ` a college student majoring in computer science`
 
 -  ` and currently learning Java! `
