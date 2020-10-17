@@ -7,7 +7,8 @@
 ⠀ 　ﾟ･｡･ﾟ 
 
 
+i'm also a
 
--  
+-  `college student majoring in computer science`
 
-- 
+-  ` and currently learning Java! `
