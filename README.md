@@ -7,7 +7,7 @@
 ⠀ 　ﾟ･｡･ﾟ 
 
 
-i'm also a
+also a:
 
 -  `college student majoring in computer science`
 
