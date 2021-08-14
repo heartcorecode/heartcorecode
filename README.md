@@ -7,5 +7,5 @@
 ⠀ 　ﾟ･｡･ﾟ 
 
 
--  ` a 2nd-year college student majoring in computer science and currently learning Java!`
+-  ` a 3rd-year college student majoring in computer science!`
 
