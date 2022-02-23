@@ -7,5 +7,5 @@
 ⠀ 　ﾟ･｡･ﾟ 
 
 
--  ` a 3rd-year college student majoring in computer science!`
+-  ` a 3rd-year college student!`
 
