@@ -4,7 +4,7 @@
 
 ﾟ。 ⠀⠀⠀⠀ i'm des, & i'm happy that you're here!
 
-⠀ 　ﾟ･｡･ﾟ 
+　ﾟ･｡･ﾟ 
 
 
 -  ` a 3rd-year college student!`
