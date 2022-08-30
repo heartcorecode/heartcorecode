@@ -2,10 +2,8 @@
 
 ｡ﾟﾟ゜･｡゜･ﾟﾟ｡
 
-ﾟ。 ⠀⠀⠀⠀ i'm des, & i'm happy that you're here!
+ﾟ。 ⠀⠀⠀⠀ഒ
 
 　ﾟ･｡･ﾟ 
 
-
--  ` a 3rd-year college student!`
 
